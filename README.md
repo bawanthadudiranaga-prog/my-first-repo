@@ -31,20 +31,4 @@ IoT applications in health technology
 
 
 
-              Connect With Me
 
-📍 Location: Kurunegala, Sri Lanka
-
-
-
-
-
-
-
-
-
-
-
-💼 GitHub: [Your GitHub Username]
-
-📧 Email: [Your Email Address]
